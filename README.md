@@ -1,0 +1,1 @@
+# ASUS-ROG-STRIX-Z790-A-GAMING-WIFI-D5-hackintosh
